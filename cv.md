@@ -1,4 +1,4 @@
-**Sofinsky Dmitry.**
+**Sofinsky Dmitry**
 Mobile phone +375297199486
 VK: https://vk.com/dimasofico
 dsofinskiy@gmail.com
