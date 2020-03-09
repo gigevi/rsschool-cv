@@ -1,6 +1,6 @@
 **Sofinsky Dmitry.**
 Mobile phone +375297199486
-VK https://vk.com/dimasofico
+VK: https://vk.com/dimasofico
 dsofinskiy@gmail.com
 I want to know more about android development. I want to learn how to work in a team and write large and interesting client-server applications. I love to study and am ready to spend all my free time on an interesting field of activity for me.
 Android API, Java, XML, C.
